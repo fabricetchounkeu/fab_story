@@ -14,3 +14,7 @@ je suis une formation en DEV WEB chez BECODE
 etant passioné de football j ai eu a diner une fois avec footballeur renomé
 
 Dans les montagnes brumeuses de Skarhold, un jeune homme nommé Eirik découvrit qu'il possédait le pouvoir ancestral des Dragonborn. Chaque fois qu'il respirait profondément, il pouvait sentir la chaleur des dragons anciens résonner dans ses veines. Lorsqu'un sombre dragon menaça son village, Eirik sut que son destin était de se dresser contre cette créature légendaire.
+
+la sera di luna piena,
+andate al pollaio, quando l'olocausto indica la mezzanotte in punto!
+Strappate tre piume al gallo. Non una o quattro! Tre piume!
